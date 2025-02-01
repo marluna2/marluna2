@@ -8,6 +8,11 @@ I have a YouTube channel where I ... sometimes... upload something, be it video 
 
 If you have a question or something cool to share with me, you can just email me or something.
 
+
+marluna2@posteo.de
+
+https://www.youtube.com/@marluna_x
+
 <!---
 marluna2/marluna2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
